@@ -22,7 +22,7 @@ Time is a matter of organization and sacrifice. Of course I had an expetacular s
 <br>
 Although I won't go into too many details about piscine's content, one piece of advice I give is if you're a worker like me, if you can take a week or two off, TAKE IT! At the beginning it is always better, because we are all at the same level, and manage to create friendships and ask for help more easily.
 <br>
-The concept of the Piscine, is to perform the maximum of modules that we can, and pass the exams! So copy this out of the question, because one of the main points of evaluation is the consistency of results and the evolution!
+The concept of the Piscine, is to perform the maximum of modules that we can, and pass the exams! So copy is out of the question, because one of the main points of evaluation is the consistency of results and the evolution!
 <br>
 It makes no sense to deliver 10 modules and get to the exam and get a bad grade! That's not the point of school.
 <br>

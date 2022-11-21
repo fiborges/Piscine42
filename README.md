@@ -12,7 +12,7 @@ For those people that have doubts about enrolling in school, DO NOT HAVE!
 <br>
 It's not easy, it requires a lot of dedication, organization and resilience!
 We make mistakes all the times, and we have to start over several times, but in the end when we can see the project working, the feeling of realisation is fantastic.
-I will tell you a little of my experience, for those who start this journey realize that everything is done and never think about giving up!
+I will tell you a little of my experience, for those who start this journey realize that everything is possible and never think about giving up!
 <br>
 To contextualize my situation. When I did Piscine, I worked full-time, had a 15-month-old baby and had no experience in coding.
 This is to say that if I managed to get into the course, anyone can.
